@@ -1,2 +1,2 @@
-# xuguanghappy.github.io
-## xuguanghappy的博客
+# xuguanghappy的博客
+xuguanghappy.github.io
